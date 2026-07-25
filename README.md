@@ -1,4 +1,4 @@
-## Hi there 👋
+BYE WHAT IS THIS
 
 <!--
 **weepinglilies/weepinglilies** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
