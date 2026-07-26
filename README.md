@@ -12,6 +12,20 @@ $${\color{#ffffff}꒰ ♡ \space  ̣ ׁ༷𓏼 \space  𓐇۪　My \space deares
 <details>
 　 <summary><img src="https://i.postimg.cc/rm0QBGg9/Tumblr-l-2025250375209927.gif" width="20" alt="wan! wan!"> $${\color{#ffffff} \space ㅅ𓐇　 \space  𓈒 　ძіrᥱᥴ𝗍і᥆ᥒs \space   ݃ 。 ꒰꒰  ݂
  　 ·}$$ <img src="https://i.postimg.cc/85Jt2dwZ/Tumblr-l-2025248929339094.gif" width="20" alt="wan! wan!"> </summary>
-[urls](https://rentry.co/angel0fsloth)
 
-# WIP . MY BACK HURTS
+ ⠀⠀[main](https://rentry.co/healingcutz)⠀𓏼⠀[urls](https://rentry.co/angel0fsloth)⠀⠀ 𓏼⠀ [socials](https://rentry.co/seltzercokieswife)⠀ 𓏼⠀ [prns.cc](https://pronouns.cc/@ClownpiercesDoll)⠀ 𓏼⠀ [atabook](https:oxn.atabook.org/)
+ 
+ ♡ u should sign my ata ... ! <br>
+</details>
+
+<img src=https://64.media.tumblr.com/c3f19d75fb40917229cb9bf99766fcdb/3a2e1a6a5235c0e1-d1/s1280x1920/067a8249ddb26d0bf6729b1a3168c638520d5659.pnj width="500" align="center" alt="Hero by Meego">
+<details>
+<summary> $${\color{#ffffff} 𓏼ᣟ݂݁    ᩧຼ𓈒ִㅤ\space 　ᩰ ᩙᣟ݂݁  \space Special \space 𝒫ᥲᥕ᥆᥆m𝖿s \space   ᩧ݂۫ \space ｡　}$$ <img src="https://i.postimg.cc/qRhjPcQL/Tumblr-l-2025085128409104.gif " width="20" alt="wan! wan!"> </summary><br>
+
+$${\color{#ffffff}I \space only \space follow \space active \space friends \space + \space cool \space people \space !! \space no \space favorites \space !! \space  hvy \space slcv \space fb \space / \space follow \space !! \space  can \space  onlu \space  flw , \space too \space shy \space to \space interact }$$ ‎૮ ྀི ′̥̥̥ ᵔ ‵̥̥̥  ྀིა
+
+$${\color{#ffffff}my \space pawsawm \space oomfies\space ｡ ᣟ݂݁ }$$ 
+<a href="https://github.com/N0ISEMAKER">don</a> ♡︎
+<a href="https://github.com/lovingl3tters">markus</a>  ♡︎  [cole](https://lookielookieitscoleio.straw.page/)  ♡︎  [fluer](https://guns.lol/f1uriee)
+
+# wip
