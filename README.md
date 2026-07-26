@@ -25,7 +25,15 @@ $${\color{#ffffff}꒰ ♡ \space  ̣ ׁ༷𓏼 \space  𓐇۪　My \space deares
 $${\color{#ffffff}I \space only \space follow \space active \space friends \space + \space cool \space people \space !! \space no \space favorites \space !! \space  hvy \space slcv \space fb \space / \space follow \space !! \space  can \space  onlu \space  flw , \space too \space shy \space to \space interact }$$ ‎૮ ྀི ′̥̥̥ ᵔ ‵̥̥̥  ྀིა
 
 $${\color{#ffffff}my \space pawsawm \space oomfies\space ｡ ᣟ݂݁ }$$ 
-<a href="https://github.com/N0ISEMAKER">don</a> ♡︎
-<a href="https://github.com/lovingl3tters">markus</a>  ♡︎  [cole](https://lookielookieitscoleio.straw.page/)  ♡︎  [fluer](https://guns.lol/f1uriee)
 
-# wip
+<a href="https://github.com/N0ISEMAKER">don</a> ♡︎
+<a href="https://github.com/lovingl3tters">markus</a>  ♡︎  [cole](https://lookielookieitscoleio.straw.page/)  ♡︎  [fluer](https://guns.lol/f1uriee)  ♡︎  [owen](https://www.tiktok.com/@pikadivangst?_r=1&_t=ZS-98MKT4QryML) ♡︎  <a href="https://github.com/mizisugar">mizi</a> 
+
+
+$${\color{#ffffff}my \space chud \space irl \space  pawsawm \space oomfies\space ｡ ᣟ݂݁ }$$ 
+  ♡︎  ady  ♡︎  chyn  ♡︎  zyre  ♡︎  cris  ♡︎  nora  ♡︎  lee
+
+
+$${\color{#ffffff}pawsome \space / \space coll \space  people !\space ｡ ᣟ݂݁ }$$ 
+
+<a href="https://github.com/cola-flavour">cola-flavour</a> ♡︎ <a href="https://github.com/slothfully">sloth</a> ♡︎ <a href="https://github.com/SONNELLINOENTHUSIAST">SONNELLINOENTHUSIAST</a> ♡︎ <a href="https://github.com/lomedys">lomedys</a> ♡︎ <a href="https://github.com/DEBTHVERIFIED">DEBTHVERIFIED</a> ♡︎
