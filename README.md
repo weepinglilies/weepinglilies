@@ -31,9 +31,10 @@ $${\color{#ffffff}my \space pawsawm \space oomfies\space ｡ ᣟ݂݁ }$$
 
 
 $${\color{#ffffff}my \space chud \space irl \space  pawsawm \space oomfies\space ｡ ᣟ݂݁ }$$ 
+
   ♡︎  ady  ♡︎  chyn  ♡︎  zyre  ♡︎  cris  ♡︎  nora  ♡︎  lee
 
 
 $${\color{#ffffff}pawsome \space / \space coll \space  people !\space ｡ ᣟ݂݁ }$$ 
 
-<a href="https://github.com/cola-flavour">cola-flavour</a> ♡︎ <a href="https://github.com/slothfully">sloth</a> ♡︎ <a href="https://github.com/SONNELLINOENTHUSIAST">SONNELLINOENTHUSIAST</a> ♡︎ <a href="https://github.com/lomedys">lomedys</a> ♡︎ <a href="https://github.com/DEBTHVERIFIED">DEBTHVERIFIED</a> ♡︎
+<a href="https://github.com/slothfully">sloth</a> ♡︎ <a href="https://github.com/SONNELLINOENTHUSIAST">SONNELLINOENTHUSIAST</a> ♡︎ <a href="https://github.com/lomedys">lomedys</a> ♡︎ <a href="https://github.com/DEBTHVERIFIED">DEBTHVERIFIED</a> ♡︎
