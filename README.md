@@ -3,7 +3,7 @@
 <table>
 <tr>
 <td>
-$${\color{#ffffff}꒰ ♡ \space  ̣ ׁ༷𓏼 \space  𓐇۪　My \space dearest \space Fuschia \space I \space will \space cherish \space our  \space memories \space  alway \space \space ,}$$　<img src="https://i.postimg.cc/GppDNczy/Tumblr-l-2024234581082033.gif " width="20" alt="wan! wan!"><br>
+$${\color{#ffffff}꒰ ♡ \space  ̣ ׁ༷𓏼 \space  𓐇۪　My \space dearest \space Fuschia \space I \space will \space cherish \space our  \space memories \space  always \space \space ,}$$　<img src="https://i.postimg.cc/GppDNczy/Tumblr-l-2024234581082033.gif " width="20" alt="wan! wan!"><br>
 　 <img src="https://i.postimg.cc/vmmnjQX9/Tumblr-l-2024357351946518.gif" width="20" alt="wan! wan!"> 　 $${\color{#ffffff}Forgive \space me \space for \space everything. \space Live \space beautifully, \space my \space love.　𓈒♡ໃ \space  ͜⏔ ּ𓏼}$$ <br>
 </td>
 </tr>
