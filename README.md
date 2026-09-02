@@ -30,5 +30,5 @@ ${\textsf{\color{#c2bcd2}𓏼   ᥲ   }}$ ㅤㅤ ${\textsf{\color{#c2bcd2} hᥱ�
 ㅤ<img src="https://i.postimg.cc/4xSmj782/Tumblr-l-1014673480834129.gif" width="20"> ㅤ ${\textsf{\color{#C3BCD2} " ᥉𝗂gᥒ hᥱr ᥲtᥲ. }}$ㅤㅤ  [atabook](https:oxn.atabook.org/)ㅤㅤ ${\textsf{\color{#EDCAD2} alright. " }}$ㅤㅤ ${\textsf{\color{#FFFFF0} ―  ρ𝗂ᥱrᥴᥱ  }}$ㅤㅤ
 <br>
 
-${\textsf{\color{#c2bcd2}𝒟᥆᥎ᥱ 𓏻 }}$ ㅤㅤ ${\textsf{\color{#c2bcd2} 𝒮ʸˢ   ݂֪֪݃    𓈒}}$ ㅤㅤ ${\textsf{\color{#EDCAD2} ᴹᵉⁿᵗᵃˡˡʸ ᵘⁿʷᵉˡˡㅤ۫ ݃}}$ㅤㅤ ${\textsf{\color{#FFFFF0}  he  ݄ ׄ }}$ ㅤ ${\textsf{\color{#FFFFF0}   all𓈒　　⠀˙}}$
+${\textsf{\color{#c2bcd2}𝒟᥆᥎ᥱ 𓏻 }}$ ㅤㅤ ${\textsf{\color{#c2bcd2} 𝒮ʸˢ   ݂֪֪݃    𓈒}}$ ㅤㅤ ${\textsf{\color{#EDCAD2} ᴹᵉⁿᵗᵃˡˡʸ ᵘⁿʷᵉˡˡㅤ۫ ݃}}$ㅤㅤ ${\textsf{\color{#EDCAD2}  he  ݄ ׄ }}$ ㅤ ${\textsf{\color{#FFFFF0}   all𓈒　　⠀˙}}$
 <br>
