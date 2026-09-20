@@ -8,8 +8,8 @@
 <summary>
 　<img src="https://i.postimg.cc/fR299wYy/20260920-080934.gif" width="300" align="Right"> </summary>
 
- hi
- </details>
+ <a href="https://github.com/N0ISEMAKER"> janjan chud </a>ㅤㅤ<a href="https://github.com/lovingl3tters"> Markcrewpro </a> ㅤㅤ <a href="https://github.com/DEBTHVERIFIED"> whysosirius ?  </a>ㅤhi cole cause no githubㅤ <a href="https://github.com/xyzhiyuu"> cad bro </a>ㅤㅤ<a href="https://github.com/sxual8"> trips u . / darlingfies </a>ㅤㅤ
+  </details>
 </td>
 </tr>
  
