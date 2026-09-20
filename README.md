@@ -7,6 +7,8 @@
 <details>
 <summary>
 　<img src="https://i.postimg.cc/fR299wYy/20260920-080934.gif" width="300" align="Right"> </summary>
+
+ hi
  </details>
 </td>
 </tr>
@@ -15,7 +17,7 @@
 <td>
 <details>
 <summary>
-　<img src="https://i.postimg.cc/CMWjxLwM/Untitled701-20260920103432.png" width="130" align="center">
+　<img src="https://i.postimg.cc/CMWjxLwM/Untitled701-20260920103432.png" width="130" align="center">${\textsf{\color{#D4C0B1}links}}$
   </tr><img src="https://i.postimg.cc/KzZhhysq/Untitled701-20260920082433.png" width="130" align="center"> ㅤ</summary>
 
 ㅤ 　[<img src="https://i.postimg.cc/W317g9HH/Untitled701-20260920104840.png" width="50">](https://oxn.atabook.org/) 　[<img src="https://i.postimg.cc/V6kFn7VT/Untitled701-20260920104909.png" width="50">](https://rentry.co/healingcutz) ㅤ <a href="https://https://github.com/pt-friendships">w-cgc </a> 　<a href="https://github.com/fans-town">medkits biggest fan </a> 　 <a href="https://github.com/ship-town">Num.1 Medkit soulbounder AND Angel bow x Medkit shipper! </a>
