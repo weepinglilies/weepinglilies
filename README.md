@@ -1,4 +1,4 @@
-<img src="https://i.postimg.cc/9MX08yWg/Untitled700-20260913010025.png" width="300" align="left">
+<img src="https://i.postimg.cc/9MX08yWg/Untitled700-20260913010025.png" width="275" align="left">
 <img src="https://i.postimg.cc/J0YsBxB9/Untitled700-20260920084542.png" width="300" align="center">
 
 ㅤㅤㅤㅤㅤㅤㅤㅤ![snores](https://komarev.com/ghpvc/?username=weepinglilies&color=1D204B&label=ㅤ　　　᥉ᥕᥱᥱthᥱᥲrt᥉　ㅤㅤ　)
