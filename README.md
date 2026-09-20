@@ -15,8 +15,8 @@
 <td>
 <details>
 <summary>
-　<img src="https://i.postimg.cc/CMWjxLwM/Untitled701-20260920103432.png" width="100" align="center">
-  </tr><img src="https://i.postimg.cc/KzZhhysq/Untitled701-20260920082433.png" width="100" align="center"> ㅤ</summary>
+　<img src="https://i.postimg.cc/CMWjxLwM/Untitled701-20260920103432.png" width="130" align="center">
+  </tr><img src="https://i.postimg.cc/KzZhhysq/Untitled701-20260920082433.png" width="130" align="center"> ㅤ</summary>
 
 ㅤ 　[<img src="https://i.postimg.cc/W317g9HH/Untitled701-20260920104840.png" width="50">](https://oxn.atabook.org/) 　[<img src="https://i.postimg.cc/V6kFn7VT/Untitled701-20260920104909.png" width="50">](https://rentry.co/healingcutz) ㅤ <a href="https://https://github.com/pt-friendships">w-cgc </a> 　<a href="https://https://github.com/pt-friendships">wait-cole gc </a> 　
  </details>
