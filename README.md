@@ -1,34 +1,24 @@
-<img src="https://i.postimg.cc/T3R3SY2R/Untitled641-20260823140846.png" width="150" align="left">
-<table>
+<img src="https://i.postimg.cc/9MX08yWg/Untitled700-20260913010025.png" width="300" align="left">
+<img src="https://i.postimg.cc/J0YsBxB9/Untitled700-20260920084542.png" width="350" align="center">
+
+ㅤㅤㅤㅤㅤㅤㅤㅤ![snores](https://komarev.com/ghpvc/?username=weepinglilies&color=1D204B&label=ㅤ　　　᥉ᥕᥱᥱthᥱᥲrt᥉　ㅤㅤ　)
 <tr>
 <td>
-${\textsf{\color{#c2bcd2}𓏼    ◜ ͡   ♡    }}$ ㅤㅤ ${\textsf{\color{#c2bcd2} 𝗁𝖾 }}$ ㅤㅤ ${\textsf{\color{#EDCAD2} 𝗌𝗉𝖾𝖺𝗄𝗌 }}$ ㅤㅤ ${\textsf{\color{#EDCAD2} ᥲs}}$ ㅤㅤ ${\textsf{\color{#FFFFF0} 𝗋𝗎𝗌𝗍𝖾𝖽  𝗂𝗋𝗈𝗇  }}$
-<br>
-<img src="https://i.postimg.cc/jSFLBw8v/Tumblr-l-2025250375209927.gif" width="20"> ${\textsf{\color{#c2bcd2}  ,, ˇ }}$ㅤㅤ ${\textsf{\color{#c2bcd2}ᥲᥒd }}$ㅤ ${\textsf{\color{#EDCAD2} rᥱᥲ𝖼𝗁𝖾𝗌 }}$ㅤ ${\textsf{\color{#EDCAD2} ᥣ𝗂kᥱ }}$ㅤ ${\textsf{\color{#FFFFF0} thᥱ }}$ㅤㅤ ${\textsf{\color{#FFFFF0} 𝗆᥆᥆𝗇 }}$<img src="https://i.postimg.cc/QdyHv960/Tumblr-l-2025248929339094.gif" width="20">
+<details>
+<summary>
+　<img src="https://i.postimg.cc/fR299wYy/20260920-080934.gif" width="300" align="Right"> </summary>
+ </details>
 </td>
 </tr>
-</table>⠀⠀⠀⠀
-
-<img src="https://i.postimg.cc/SxvJH2Z7/Tumblr-l-2025085128409104.gif" width="20"> ㅤ ${\textsf{\color{#C3BCD2} " …ρ𝗂ᥱrᥴᥱ? }}$ㅤㅤ ${\textsf{\color{#EDCAD2} f𝗂ᥒ𝗂᥉hᥱd }}$ ㅤㅤ ${\textsf{\color{#EDCAD2} ᥲᥣrᥱᥲdᥡ? " }}$ㅤㅤ ${\textsf{\color{#FFFFF0} ―  d᥆᥎ᥱ }}$ㅤㅤ
-<br>
- ${\textsf{\color{#C3BCD2} " ᥣᥱt'᥉ gᥱt}}$ ${\textsf{\color{#C3BCD2} ᥡ᥆ᥙ }}$ ${\textsf{\color{#EDCAD2} h᥆mᥱ. }}$ ${\textsf{\color{#EDCAD2}  𝗂t’᥉}}$ ${\textsf{\color{#EDCAD2} ᥣᥲtᥱ.}}$  ${\textsf{\color{#EDCAD2} 𝗂’ᥣᥣ}}$ ${\textsf{\color{#EDCAD2} ᥕᥲᥣk }}$ ${\textsf{\color{#FFFFF0}ᥡ᥆ᥙ."}}$ㅤ ${\textsf{\color{#FFFFF0} ―  ρ𝗂ᥱrᥴᥱ }}$
-<table>⠀⠀
-<table>
+ 
 <tr>
 <td>
-${\textsf{\color{#c2bcd2}𓏼   ᥲ   }}$ ㅤㅤ ${\textsf{\color{#c2bcd2} hᥱᥲrt }}$ ㅤㅤ ${\textsf{\color{#EDCAD2} ᥲ᥉ }}$ ㅤㅤ ${\textsf{\color{#EDCAD2} ᥉᥆ft }}$ ㅤㅤ ${\textsf{\color{#FFFFF0} ᥲ᥉ }}$ ㅤ ${\textsf{\color{#FFFFF0} d᥆᥎ᥱ fᥱᥲthᥱr}}$
-<br>
-<img src="https://i.postimg.cc/P5RP0p6M/Tumblr-l-117866086488526.gif" width="20"> ${\textsf{\color{#c2bcd2} ˇ ‿‿   ♡}}$ㅤㅤ ${\textsf{\color{#c2bcd2}ρᥙrᥱ  }}$ㅤ ${\textsf{\color{#EDCAD2} ᥲ᥉  }}$ㅤ ${\textsf{\color{#EDCAD2} thᥱ  }}$ㅤ ${\textsf{\color{#FFFFF0} qᥙ𝗂ᥱt  }}$ㅤㅤ ${\textsf{\color{#FFFFF0} ᥉ᥒ᥆ᥕ }}$<img src="https://i.postimg.cc/HkhVFcS6/Tumblr-l-2024357351946518.gif" width="20">
+<details>
+<summary>
+　<img src="https://i.postimg.cc/CMWjxLwM/Untitled701-20260920103432.png" width="150" align="center">
+  </tr><img src="https://i.postimg.cc/KzZhhysq/Untitled701-20260920082433.png" width="150" align="center"> ㅤ</summary>
+
+ㅤ 　[<img src="https://i.postimg.cc/W317g9HH/Untitled701-20260920104840.png" width="50">](https://oxn.atabook.org/) 　[<img src="https://i.postimg.cc/V6kFn7VT/Untitled701-20260920104909.png" width="50">](https://rentry.co/healingcutz) ㅤ <a href="https://https://github.com/pt-friendships">w-cgc </a> 　<a href="https://https://github.com/pt-friendships">wait-cole gc </a> 　
+ </details>
 </td>
 </tr>
-</table>
-</table>⠀⠀⠀⠀
-
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![snores](https://komarev.com/ghpvc/?username=pierrotpartner&color=EDCAD2&label=ㅤ　foolsㅤㅤ　)
-
-ㅤ<img src="https://i.postimg.cc/4xSmj782/Tumblr-l-1014673480834129.gif" width="20"> ㅤ ${\textsf{\color{#C3BCD2} " ᥉𝗂gᥒ hᥱr ᥲtᥲ. }}$ㅤㅤ  [atabook](https:oxn.atabook.org/)ㅤㅤ ${\textsf{\color{#EDCAD2} alright. " }}$ㅤㅤ ${\textsf{\color{#FFFFF0} ―  ρ𝗂ᥱrᥴᥱ  }}$ㅤㅤ
-<br>
-
-${\textsf{\color{#c2bcd2}𝒟᥆᥎ᥱ 𓏻 }}$ ㅤㅤ ${\textsf{\color{#c2bcd2} 𝒮ʸˢ   ݂֪֪݃    𓈒}}$ ㅤㅤ ${\textsf{\color{#EDCAD2} ᴹᵉⁿᵗᵃˡˡʸ ᵘⁿʷᵉˡˡㅤ۫ ݃}}$ㅤㅤ ${\textsf{\color{#EDCAD2}  he  ݄ ׄ }}$ ㅤ ${\textsf{\color{#FFFFF0}   all𓈒　　⠀˙}}$
-<br>
