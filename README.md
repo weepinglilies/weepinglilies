@@ -19,7 +19,9 @@
 <summary>
 <img src="https://i.postimg.cc/CMWjxLwM/Untitled701-20260920103432.png" width="130" align="center">${\textsf{\color{#D4C0B1}links}}$</tr><img src="https://i.postimg.cc/KzZhhysq/Untitled701-20260920082433.png" width="130" align="center"> ㅤ</summary>
 
-ㅤ 　[<img src="https://i.postimg.cc/W317g9HH/Untitled701-20260920104840.png" width="50">](https://oxn.atabook.org/) 　[<img src="https://i.postimg.cc/V6kFn7VT/Untitled701-20260920104909.png" width="50">](https://rentry.co/healingcutz) ㅤ <a href="https://https://github.com/pt-friendships">w-cgc </a> 　<a href="https://github.com/fans-town">medkits biggest fan </a> 　 <a href="https://github.com/ship-town">Num.1 Medkit soulbounder AND Angel bow x Medkit shipper! </a> <a href="https://github.com/THE-TEMPIST">  popular players  +  chronically online players  +  prettiest github ♡ </a> <a href="https://github.com/bug-town"> always afk / offtab + the prettiest skins ever + @weepinglilies is medkit !  </a> 
+ㅤ 　[<img src="https://i.postimg.cc/W317g9HH/Untitled701-20260920104840.png" width="50">](https://medkiit.atabook.org/) 　[<img src="https://i.postimg.cc/V6kFn7VT/Untitled701-20260920104909.png" width="50">](https://rentry.co/healingcutz) ㅤ <a href="https://https://github.com/pt-friendships">w-cgc </a> 　<a href="https://github.com/fans-town">medkits biggest fan </a> 　 <a href="https://github.com/ship-town">Num.1 Medkit soulbounder AND Angel bow x Medkit shipper! </a> <a href="https://github.com/THE-TEMPIST">  popular players  +  chronically online players  +  prettiest github ♡ </a> <a href="https://github.com/bug-town"> always afk / offtab + the prettiest skins ever + @weepinglilies is medkit !  </a> <a href="https://github.com/piddlesjet">POPULAR PEOPLE + ALWAYS ONLINE + PRETTIEST LAYOUTS + CUDDLE BUGS </a> 
+
+
 </details>
 </td>
 </tr>
